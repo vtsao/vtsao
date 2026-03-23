@@ -1,3 +1,3 @@
 Future-Metamate, future-Amazonian, future-Appler. Short lived learner. 1/10x engineer. Quarter-stack developer. Engineering follower. Opinions are not my own. Second rate individual who sees his chance.
 
-Tell them you found the promised land.
+They were playing chess while I was playing checkers. Tell them you found the promised land.
